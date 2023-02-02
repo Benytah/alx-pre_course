@@ -1,1 +1,1 @@
-God has got me
+I have an excellent spirit
